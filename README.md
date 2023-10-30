@@ -1,2 +1,0 @@
-# mirjalolahmadjonov.github.io
-Portfolio
